@@ -1,2 +1,1 @@
-# valoracion-de-compa-ias
-Atraves calculo 
+# Aliño aceitunas a la sosa
